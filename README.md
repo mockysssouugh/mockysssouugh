@@ -17,7 +17,7 @@ src="https://i.imgur.com/PfMgq1e.png"
 
 <p align="center">$$\color{#B80606}{\text{READ RENTRY + PRONOUNS PAGE B4 INT.}}$$
    $$\quad$$
-$$\color{#B80606}{\text{THIS WILL BE ASSUMED IF YOU INT WITH US IN ANY SORT OF WAY}}$$🤓</p>
+$$\color{#B80606}{\text{THIS WILL BE ASSUMED IF YOU INT WITH US IN ANY SORT OF WAY}}$$</p>
 
 <p align="center">$$\color{#e7e7d8}{\text{C+H and INT freely, I would love to talk to you !!}}$$
 $$\quad$$
