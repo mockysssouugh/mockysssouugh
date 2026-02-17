@@ -9,14 +9,13 @@ src="https://i.imgur.com/PfMgq1e.png"
    align="right"
 />
 
-<p align="center"> $$\color{#e7e7d8}{\text{「 ✦ Mock's Github . . . ✦ 」}}$$ $$\color{#7effe6}{\text{Better view on PC !!}}$$
+<p align="center"> $$\color{#e7e7d8}{\text{ 💤「 ✦ Mock's Github . . . ✦ 」🌊 }}$$ $$\color{#7effe6}{\text{Better view on PC !!}}$$
 </p>
  
 <p align="center"> ◟　—————————　✦　—————————　 ◞
 </p>
 
 <p align="center">$$\color{#B80606}{\text{READ RENTRY + PRONOUNS PAGE B4 INT.}}$$
-<br/>
 $$\color{#B80606}{\text{ THIS WILL BE ASSUMED IF YOU INT WITH US IN ANY SORT OF WAY :nerd_face:}}$$</p>
 
 <p align="center">$$\color{#e7e7d8}{\text{C+H freely . . . INT , DNC , no need to W2I unless stated}}$$</p>
