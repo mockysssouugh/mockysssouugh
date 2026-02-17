@@ -19,7 +19,7 @@ src="https://i.imgur.com/PfMgq1e.png"
    $$\quad$$
 $$\color{#B80606}{\text{THIS WILL BE ASSUMED IF YOU INT WITH US IN ANY SORT OF WAY}}$$🤓</p>
 
-<p align="center">$$\color{#e7e7d8}{\text{C+H freely . . . INT , DNC , no need to W2I unless stated}}$$</p>
+<p align="center">$$\color{#e7e7d8}{\text{C+H and INT freely, I would love to talk to you !! . . . DNC , no need to W2I unless stated}}$$</p>
 
 <p align="center">$$\color{#7effe6}{\text{LINKS !!}}$$</p>
 
