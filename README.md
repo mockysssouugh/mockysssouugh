@@ -15,7 +15,7 @@ src="https://i.imgur.com/PfMgq1e.png"
 <p align="center"> ◟　—————————　✦　—————————　 ◞
 </p>
 
-<p align="center">$$\color{#B80606}{\text{READ RENTRY + PRONOUNS PAGE B4 INT.}}$$
+<p align="center">$$\color{#B80606}{\text{READ RENTRY DNI LIST B4 INT.}}$$
    $$\quad$$
 $$\color{#B80606}{\text{THIS WILL BE ASSUMED IF YOU INT WITH US IN ANY SORT OF WAY}}$$</p>
 
