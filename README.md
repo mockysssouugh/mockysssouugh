@@ -26,13 +26,17 @@ $$\color{#e7e7d8}{\text{DNC , no need to W2I unless stated in name . . .}}$$</p>
 <p align="center">$$\color{#7effe6}{\text{LINKS !!}}$$</p>
 
 <p align="center">
-  ⌞ <a href="https://rentry.co/moraspc">Rentrypage</a> ⟡ <a href="https://en.pronouns.page/@mock...mora">Pronouns.page</a> ⟡ <a href="https://moraspchead.straw.page/">Strawpage</a> ⌝
+⌞ <a href="https://rentry.co/moraspc">Rentrypage</a> ⟡ <a href="https://en.pronouns.page/@mock...mora">Pronouns.page</a> ⟡ <a href="https://moraspchead.straw.page/">Strawpage</a> ⌝
 </p>
 
 $$\quad$$
 
 <p align="center">
 <img width="600" src="https://i.imgur.com/pVtz7Em.png"></p>
+
+<p align="center">$$\color{#B80606}{\text{I DELETE FRIENDS USUALLY IF I DON'T REMEMBER THEM}}$$
+   $$\quad$$
+$$\color{#e7e7d8}{\text{if you dont want this happening to you, tell me your name at least so is easier for me to remember! /srs}}$$</p>
 
 <p align="center">THIS USER PAGE!!</p>
 
