@@ -1,7 +1,13 @@
 <p align="center">
 <img width="500" src="https://i.imgur.com/roe1kUk.png"></p>
-<p align="center">
-<img width="600" src="https://i.imgur.com/pVtz7Em.png"></p>
+
+<p align="center">$$\color{#B80606}{\text{I DELETE FRIENDS USUALLY IF I DON'T REMEMBER THEM}}$$
+   $$\quad$$
+$$\color{#e7e7d8}{\text{if you dont want this happening to you, tell me your name at least so is easier for me to remember! /srs}}$$</p>
+   
+<p align="center"><img width="600" src="https://i.imgur.com/pVtz7Em.png"></p>
+
+$$\quad$$
 
 <img
 src="https://i.imgur.com/PfMgq1e.png"
@@ -33,10 +39,6 @@ $$\quad$$
 
 <p align="center">
 <img width="600" src="https://i.imgur.com/pVtz7Em.png"></p>
-
-<p align="center">$$\color{#B80606}{\text{I DELETE FRIENDS USUALLY IF I DON'T REMEMBER THEM}}$$
-   $$\quad$$
-$$\color{#e7e7d8}{\text{if you dont want this happening to you, tell me your name at least so is easier for me to remember! /srs}}$$</p>
 
 <p align="center">THIS USER PAGE!!</p>
 
