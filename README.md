@@ -3,7 +3,7 @@
 
 <p align="center">$$\color{#B80606}{\text{I DELETE FRIENDS USUALLY IF I DON'T REMEMBER THEM}}$$
    $$\quad$$
-$$\color{#e7e7d8}{\text{If you dont want this happening to you, tell me your name at least so is easier for me to remember! This is nothing personal. /srs}}$$</p>
+<p align="center">$$\color{#e7e7d8}{\text{If you dont want this happening to you, tell me your name at least so is easier for me to remember!}}$$</p>
    
 <p align="center"><img width="600" src="https://i.imgur.com/pVtz7Em.png"></p>
 
