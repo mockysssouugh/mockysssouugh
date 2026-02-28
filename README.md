@@ -9,11 +9,10 @@
 
 $$\quad$$
 
-<img
-src="https://i.imgur.com/PfMgq1e.png"
-   width="400"
-   align="right"
-/>
+<a href="https://rentry.co/morapcsurprise">
+    <img src="https://i.imgur.com/PfMgq1e.png" alt="maybe...?"    width="400"
+   align="right">
+</a>
 
 <p align="center"> $$\color{#e7e7d8}{\text{ 💤「 ✦ Mock's Github . . . ✦ 」🌊 }}$$ $$\color{#7effe6}{\text{Better view on PC !!}}$$
 </p>
@@ -40,7 +39,8 @@ $$\quad$$
 <p align="center">
 <img width="600" src="https://i.imgur.com/pVtz7Em.png"></p>
 
-<p align="center">THIS USER PAGE!!</p>
+$$\color{#30374A}{\text{There might be a **surprise** waiting for you here . . .
+It can't attack you on its own.}}$$
 
 <p align="center">
 <img width="200" src="https://64.media.tumblr.com/70efdd35a153317f4b4f0eeecc6a95c5/970d2a75a2adfdd7-07/s1280x1920/7e8ea1f0beb7c6cef656d35d5d695985d1a84a7e.pnj"/>
